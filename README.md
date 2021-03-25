@@ -1,0 +1,4 @@
+- 🍵 Hi, I’m @tea-san
+-  I luvv in bubble tea <3
+- If u want to talk i have a discord ❤- imjusthereforthetea#1504
+- If not, here's my email- sad0dep@gmail.com
